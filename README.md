@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
 
-Uwu so quirky
->_>
+> Uwu so quirky or what
+
